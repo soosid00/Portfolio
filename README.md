@@ -76,7 +76,7 @@ I’m open to:
 - Private commissions  
 - Long-term dev roles  
 
-If it’s serious and paid, I’m interested.
+If it’s serious and paid, I’m interested. Payments MUST be finalized atleast half of it to have security between business between us.
 
 ---
 
